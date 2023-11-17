@@ -6,7 +6,9 @@ __lovewired circus__ [check front prns](https://pluralkit.xyz/f/pnysa) autidhd p
 
 **`tl;dr dni`** — basic dni , pro-ship , queer exclus , or otherwise unnessasarily rude *!!*
 
-extended info on our [sntry.cc](https://sntry.cc/lostbody)
+---
+
+> extended info on our [sntry.cc](https://sntry.cc/lostbody) this is 4 ppl too lazy 2 read it . . . /lighthearted
 
 ---
 
