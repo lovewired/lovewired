@@ -8,16 +8,18 @@ __lovewired circus__ [check front prns](https://pluralkit.xyz/f/pnysa) autidhd p
 
 ---
 
-> extended info on our [sntry.cc](https://sntry.cc/lostbody) this is 4 ppl too lazy 2 read it . . . /lighthearted
+> extended info on our [sntry.cc](https://sntry.cc/lostbody) this is 4 ppl too lazy 2 read it ..... /lighthearted ^_^
 
 ---
 
 ### —— ponytown info ————
 
-don't cuddle or hide unless stated. don't come up 2 us randomly it scares us lol
+don't cuddle or hide unless in name. don't come up 2 us randomly it scares us lol
 
-feel free 2 int with someone next to us or somethin but generally dont int w/ us
+feel free 2 int with someone next 2 us or sit somehwhat close 2 us but generally dni
 
-also we hide/block ppl freely on every platform , ponytown included . . . el oh el
+if u copy any of our skins we will hunt u 4 sport 😁 also dont screenshot 4 inspo
+
+also we hide/block ppl freely on every platform , ponytown included ... always [iwc](https://www.urbandictionary.com/define.php?term=IWC)
 
 ---
