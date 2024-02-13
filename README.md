@@ -22,4 +22,6 @@ __lovewired circus__ [check front prns](https://pluralkit.xyz/f/pnysa) autidhd p
 
 [(05)]() : i just wanna hang out & mainly observe . don't be weird , esp abt our introjects , im nto afraid 2 hide ppl LOL
 
+[(06)]() : shut up about touch triggers & touch discomforts let people have boundaries its not that serious
+
 ---
