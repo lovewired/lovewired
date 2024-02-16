@@ -4,11 +4,10 @@ __lovewired circus__ <span style="color:#821E48!important;">[check front prns](h
 
 **`tl;dr dni`** — basic dni , pro-ship , queer exclus , or otherwise unnessasarily rude *!!*
 
+---
 
-**[⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜⏜](not_actually_a_link)**
-
-<details open>
-<summary> <b>————— " PONY TOWN INFO "</b> </summary>
+<details>
+<summary> <b>————— CLICK 4 " PONY TOWN " INFO + BOUNDARIES </b> </summary>
 <br>
 
 [(01)](not_actually_a_link) : don't cuddle or hide unless in name. friends + sourcemates r usually ok 2 c+h regardless unless dni in name
@@ -25,4 +24,4 @@ __lovewired circus__ <span style="color:#821E48!important;">[check front prns](h
 
 </details>
 
-**[⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝⏝](not_actually_a_link)**
+---
