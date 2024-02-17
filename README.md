@@ -18,7 +18,7 @@ don't cuddle or hide unless c+h in name ; friends are okay 2 c+h regardless :3 w
 
 if you copy any of our skins we will hunt you for sport 😁 inspo ok to a certain degree ?? we hide freely , if u mildly annoy us u will be hidden ; like if u boop us repeatedly or purposely try to cover us .
 
-we're always somewhere around the heart lake , southwest of the library , if u wanna find us ! if we're not there + online , just whisper us & ask if u wanna know .. idm ...
+we're always somewhere around the heart lake , southwest of the library , if u wanna find us ! *occasionally* at the library or our island .
 
 **dumb discourse stuff :** shut up about touch triggers and touch discomforts go outside and recongnize people have boundaries .
 
