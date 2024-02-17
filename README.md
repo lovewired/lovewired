@@ -1,6 +1,6 @@
 ![](https://i.postimg.cc/LsDxmrHq/banner.png)
 
-__lovewired circus__ [check front prns](https://pluralkit.xyz/f/pnysa) autidhd polyfrag sys bodily 16 [+](https://pronouns.cc/@malewife) tmasc omni-gay aplatonic boygirl & queer anarchist . [ext abt us + dni](https://bundlrs.cc/artists)
+__lovewired circus__ [check front prns](https://pluralkit.xyz/f/pnysa) autidhd white sys bodily 16 [+](https://pronouns.cc/@malewife) tmasc omni-gay aplatonic boygirl & queer anarchist . [ext abt us + dni](https://bundlrs.cc/artists)
 
 **`tl;dr dni`** — basic dni , pro-ship , queer exclus , or otherwise unnessasarily rude *!!*
 
