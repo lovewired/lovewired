@@ -1,6 +1,6 @@
 ![](https://i.postimg.cc/LsDxmrHq/banner.png)
 
-__lovewired circus__ <span style="color:#821E48!important;">[check front prns](https://pluralkit.xyz/f/pnysa)</span> autidhd polyfrag sys bodily 16 [+](https://pronouns.cc/@malewife) tmasc omni-gay aplatonic boygirl & queer anarchist . [ext abt us](https://bundlrs.cc/artists)
+__lovewired circus__ [check front prns](https://pluralkit.xyz/f/pnysa) autidhd polyfrag sys bodily 16 [+](https://pronouns.cc/@malewife) tmasc omni-gay aplatonic boygirl & queer anarchist . [ext abt us + dni](https://bundlrs.cc/artists)
 
 **`tl;dr dni`** — basic dni , pro-ship , queer exclus , or otherwise unnessasarily rude *!!*
 
@@ -10,17 +10,15 @@ __lovewired circus__ <span style="color:#821E48!important;">[check front prns](h
 <summary> <b>————— CLICK 4 " PONY TOWN " INFO + BOUNDARIES </b> </summary>
 <br>
 
-[(01)](not_actually_a_link) : don't cuddle or hide unless in name. friends + sourcemates r usually ok 2 c+h regardless unless dni in name
+hi we just like sitting and observing and getting our play time up for shits and giggles . generally dni if we don't know you + we don't share interests ; unless ur a sys / sourcemate , we'd probably be fine with interacting but we're socially awkward + anxious .
 
-[(02)](not_actually_a_link) : feel free 2 int with someone next 2 us or sit *near* us but generally dni ; whisper if u want us 2 see ur msg 4 sure
+we're usually off tab doing something else .. or afk on our switch or smth .. whisper if u want us to see your message 4 sure . 
 
-[(03)](not_actually_a_link) : if u copy any of our skins we will hunt u 4 sport 😁 some inspo ok, dont screenshot
+don't cuddle or hide unless c+h in name ; friends are okay 2 c+h regardless :3 we're going to ignore you if you have looking for rp on and we don't know you ; personal comfort , we don't rp & it makes us uncomfortable .
 
-[(04)](not_actually_a_link) : also we hide/block ppl freely on every platform , ponytown included ... always [iwc](https://www.urbandictionary.com/define.php?term=IWC) 
+if you copy any of our skins we will hunt you for sport 😁 inspo ok to a certain degree ?? we hide freely , if u mildly annoy us u will be hidden .
 
-[(05)](not_actually_a_link) : i just wanna hang out & mainly observe . don't be weird , esp abt our introjects , im nto afraid 2 hide ppl LOL
-
-[(06)](not_actually_a_link) : shut up about touch triggers & touch discomforts let people have boundaries its not that serious
+**dumb discourse stuff :** shut up about touch triggers and touch discomforts go outside and recongnize people have boundaries .
 
 </details>
 
