@@ -20,7 +20,7 @@ if you copy any of our skins we will hunt you for sport 😁 inspo ok to a certa
 
 we're always somewhere around the heart lake , southwest of the library , if u wanna find us ! *occasionally* at the library or our island .
 
-**dumb discourse stuff :** shut up about touch triggers and touch discomforts go outside and recongnize people have boundaries ( as an autistic person uncomfortable with random touch in any context , including social games we play )
+**dumb discourse stuff :** shut up about touch triggers and touch discomforts go outside ppl have boundaries ( as an autistic person uncomfortable with random touch , including in social games we play , u don't dictate what im uncomfortable with )
 
 </details>
 
