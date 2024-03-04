@@ -2,6 +2,8 @@
 
 __lovewired circus__ [check front prns](https://pluralkit.xyz/f/pnysa) autidhd white sys bodily 16 [+](https://pronouns.cc/@malewife) tmasc omni-gay aplatonic boygirl & queer anarchist . [ext abt us + dni](https://bundlrs.cc/artists)
 
+also "LOVEWIRED★" on the switch if you found us via searching our name up <3
+
 **`tl;dr dni`** — basic dni , pro-ship , queer exclus , or otherwise unnessasarily rude *!!*
 
 ---
