@@ -3,6 +3,7 @@
 ![](https://cdn.wikimg.net/en/splatoonwiki/images/thumb/b/bb/Daybreaker_Anthem_PV_Art.png/800px-Daybreaker_Anthem_PV_Art.png?20231031000348)
 
 __lovewired circus__ [check front prns](https://pluralkit.xyz/f/pnysa) autidhd white sys bodily 16 [+](https://pronouns.cc/@malewife) tmasc omni-gay aplatonic boygirl & queer anarchist . [ext abt us + dni](https://bundlrs.cc/artists)
+
 usually off tab or multitasking on pony town . LOVEWIRED★ on the switch (BENREY°O• #6649 on splatoon) if u found us via name >_<
 
 **`tl;dr dni`** — basic dni , pro-ship , queer exclus , or otherwise unnessasarily rude *!!*
