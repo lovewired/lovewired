@@ -1,8 +1,10 @@
-![](https://i.postimg.cc/LsDxmrHq/banner.png)
+# ☆ — Most Annoying Shiver Fan
+
+![](https://i.pinimg.com/564x/2e/59/33/2e59339fb9eb9ee759f9a658a801fd11.jpg)
 
 __lovewired circus__ [check front prns](https://pluralkit.xyz/f/pnysa) autidhd white sys bodily 16 [+](https://pronouns.cc/@malewife) tmasc omni-gay aplatonic boygirl & queer anarchist . [ext abt us + dni](https://bundlrs.cc/artists)
 
-also "LOVEWIRED★" on the switch if you found us via searching our name up <3
+usually off tab or multitasking on pony town . LOVEWIRED★ on the switch (BENREY°O• #6649 on splatoon) if u found us via name >_<
 
 **`tl;dr dni`** — basic dni , pro-ship , queer exclus , or otherwise unnessasarily rude *!!*
 
@@ -14,7 +16,7 @@ also "LOVEWIRED★" on the switch if you found us via searching our name up <3
 
 hi we just like sitting and observing and getting our play time up for shits and giggles . generally dni if we don't know you + we don't share interests ; unless ur a sys / sourcemate , we'd probably be fine with interacting but we're socially awkward + anxious .
 
-we're usually off tab doing something else .. or afk on our switch or smth .. whisper if u want us to see your message 4 sure ( if we have you friended dw we always check our personal chatlog , mainly 4 randos ! )
+we're usually off tab doing something else .. or afk on our switch or smth .. whisper if u want us to see your message 4 sure ( if we have you friended dw we always check our personal chatlog , mainly 4 randos ! but we will check tab sooner if we see a whisper notification )
 
 don't cuddle or hide unless c+h in name ; friends are okay 2 c+h regardless :3 we're going to ignore you if you have looking for rp on and we don't know you ; personal comfort , we don't rp & it makes us uncomfortable .
 
@@ -22,7 +24,7 @@ if you copy any of our skins we will hunt you for sport 😁 inspo ok to a certa
 
 we're always somewhere around the heart lake , southwest of the library , if u wanna find us ! *occasionally* at the library or our island .
 
-**dumb discourse stuff :** shut up about touch triggers and touch discomforts go outside ppl have boundaries ( as an autistic person uncomfortable with random touch , including in social games we play , u don't dictate what im uncomfortable with )
+**dumb discourse stuff :** shut up about touch triggers and touch discomforts go outside ppl have boundaries & trauma ( as an autistic person uncomfortable with random touch , including in social games we play , u don't dictate what im uncomfortable with )
 
 </details>
 
