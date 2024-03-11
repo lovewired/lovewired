@@ -1,4 +1,4 @@
-# ☆ — Most Annoying Shiver Fan
+# ☆ — Rated The #1 Most Annoying Shiver Fan Ever !
 
 ![](https://i.pinimg.com/564x/2e/59/33/2e59339fb9eb9ee759f9a658a801fd11.jpg)
 
