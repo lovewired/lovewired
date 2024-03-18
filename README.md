@@ -18,7 +18,7 @@ hi we just like sitting and observing and getting our play time up for shits and
 
 we're usually off tab doing something else .. or afk on our switch or smth .. whisper if u want us to see your message 4 sure ( if we have you friended dw we always check our personal chatlog , mainly 4 randos ! but we will check tab sooner if we see a whisper notification )
 
-don't cuddle or hide unless c+h in name ; friends are okay 2 c+h regardless :3 we're going to ignore you if you have looking for rp on and we don't know you ; personal comfort , we don't rp & it makes us uncomfortable .
+don't cuddle or hide unless c+h in name ; pls ask to cuddle or hide first if we're friends . we're going to ignore you if you have looking for rp on and we don't know you ; personal comfort , we don't rp & it makes us uncomfortable .
 
 if you copy any of our skins we will hunt you for sport 😁 inspo ok to a certain degree ?? we hide freely , if u mildly annoy us u will be hidden ; like if u boop us repeatedly or purposely try to cover us .
 
