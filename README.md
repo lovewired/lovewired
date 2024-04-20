@@ -9,7 +9,7 @@ $\text{\color{#CE4A44}{ ❝}}$ $\text{\color{#F3D196}{ mommy \ im \ a \ fuckin' 
 
 <div align="center">
 
-$\text{\color{#CE4A44}{ ◜}}$ $\text{\color{#EBE1D1}{\ lovewired \ \ sys }}$ $\text{\color{#BECBE6}{ it he }}$ [±](https://pluralkit.xyz/f/pnysa) $\text{\color{#EBE1D1}{\ \ 6teen }}$ $\text{\color{#CE4A44}{◝ }}$
+$\text{\color{#CE4A44}{ ◜}}$ $\text{\color{#EBE1D1}{lovewired \ \ sys \ }}$ $\text{\color{#BECBE6}{ it he }}$ [±](https://pluralkit.xyz/f/pnysa) $\text{\color{#EBE1D1}{\ \ 6teen}}$ $\text{\color{#CE4A44}{◝ }}$
 
 $\text{\color{#BECBE6}{sys \ host \ \ }}$ $\text{\color{#CE4A44}{ ★ }}$ $\text{\color{#EBE1D1}{\ \ benrey \ \ he she it any }}$
 
