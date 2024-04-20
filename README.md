@@ -1,10 +1,20 @@
-# ☆ [—](https://www.youtube.com/watch?v=UD7vpiKI5-Y) Rated The #1 Most Annoying Shiver Fan Ever !
+<p align="center">
+$\text{\color{#CE4A44}{ ❝}}$ $\text{\color{#F3D196}{ mommy \ im \ a \ fuckin' \ savior }}$ $\text{\color{#CE4A44}{❞ }}$
+  
+</p> 
 
-![](https://cdn.wikimg.net/en/splatoonwiki/images/thumb/b/bb/Daybreaker_Anthem_PV_Art.png/800px-Daybreaker_Anthem_PV_Art.png?20231031000348)
+<p align="center">
+<a href="https://spookysweaterblog.tumblr.com/post/747696500096778240/">©</a> <img src="https://i.postimg.cc/BvrXcj5Z/hjg.png"/>
+</p>
 
-__lovewired circus__ [check front prns](https://pluralkit.xyz/f/pnysa) autidhd white sys bodily 16 [+](https://pronouns.cc/@malewife) tmasc omni-gay aplatonic boygirl & queer anarchist . [ext abt us + dni](https://bundlrs.cc/artists) !
-usually off tab or multitasking ; inspo ok , don't copy / scrnshot . prefer not 2 int with ppl we dont know btu exceptions if u seem cool
+<div align="center">
 
-we hide very freely and are pretty much always by the gay pool area smiles . ask to c+h plz we are socially anxious . we struggle 2 int ☆
+$\text{\color{#CE4A44}{ ◜}}$ $\text{\color{#EBE1D1}{\ lovewired \ \ sys }}$ $\text{\color{#BECBE6}{ it he }}$ [±](https://pluralkit.xyz/f/pnysa) $\text{\color{#EBE1D1}{\ \ 6teen }}$ $\text{\color{#CE4A44}{◝ }}$
 
-**`tl;dr dni`** — pro-ship , queer exclus , anti - tt / td , or otherwise unnessasarily rude *!!*
+$\text{\color{#BECBE6}{sys \ host \ \ }}$ $\text{\color{#CE4A44}{ ★ }}$ $\text{\color{#EBE1D1}{\ \ benrey \ \ he she it any }}$
+
+$\text{\color{#F3D196}{ touch discomfort }}$ $\text{\color{#CE4A44}{ + }}$ $\text{\color{#BECBE6}{ afk / off tab}}$
+
+#####  💉 ㅤ[ext abt](https://rentry.co/riri) ㅤ[prns cc](https://cheriecrush.123guestbook.com/) ㅤ[rtrsprng]()ㅤ 🔪ㅤ<p/>
+
+$\text{\color{#CE4A44}{ ◟}}$ $\text{\color{#BECBE6}{always}}$ $\text{\color{#F3D196}{\ interact \ with \ caution}}$ $\text{\color{#CE4A44}{◞ }}$ 
