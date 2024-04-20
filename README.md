@@ -15,6 +15,6 @@ $\text{\color{#BECBE6}{sys \ host \ \ }}$ $\text{\color{#CE4A44}{ ★ }}$ $\text
 
 $\text{\color{#F3D196}{ touch discomfort }}$ $\text{\color{#CE4A44}{ + }}$ $\text{\color{#BECBE6}{ afk / off tab}}$
 
-#####  💉 ㅤ[ext abt](https://rentry.co/riri) ㅤ[prns cc](https://cheriecrush.123guestbook.com/) ㅤ[rtrsprng]()ㅤ 🔪ㅤ<p/>
+#####  💉 ㅤ[ext abt](https://bundlrs.cc/artists) ㅤ[prns cc](https://pronouns.cc/@malewife) ㅤ[rtrsprng](https://retrospring.net/@benry)ㅤ 🔪ㅤ<p/>
 
 $\text{\color{#CE4A44}{ ◟}}$ $\text{\color{#BECBE6}{always}}$ $\text{\color{#F3D196}{\ interact \ with \ caution}}$ $\text{\color{#CE4A44}{◞ }}$ 
