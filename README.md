@@ -13,6 +13,8 @@ $\text{\color{#CE4A44}{ ◜}}$ $\text{\color{#EBE1D1}{lovewired \ \ sys \ }}$ $\
 
 $\text{\color{#BECBE6}{sys \ host \ \ }}$ $\text{\color{#CE4A44}{ ★ }}$ $\text{\color{#EBE1D1}{\ \ benrey \ \ he she it any }}$
 
+$\text{\color{#CE4A44}{ (}}$ $\text{\color{#F3D196}{ scary \ tmasc \ omni gay \ turigirl }}$ $\text{\color{#CE4A44}{) }}$
+
 $\text{\color{#EBE1D1}{ touch discomfort }}$ $\text{\color{#CE4A44}{ + }}$ $\text{\color{#BECBE6}{ afk / off tab}}$
 
 #####  💉 ㅤ[ext abt](https://bundlrs.cc/artists) ㅤ[prns cc](https://pronouns.cc/@malewife) ㅤ[rtrsprng](https://retrospring.net/@benry)ㅤ 🔪ㅤ<p/>
