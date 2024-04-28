@@ -1,7 +1,3 @@
-<p align="center">
-$\text{\color{#CE4A44}{ ❝}}$ $\text{\color{#F3D196}{ mommy \ im \ a \ fuckin' \ savior }}$ $\text{\color{#CE4A44}{❞ }}$
-  
-</p> 
 
 <p align="center">
 <a href="https://spookysweaterblog.tumblr.com/post/747696500096778240/">©</a> <img src="https://i.postimg.cc/BvrXcj5Z/hjg.png"/>
