@@ -15,8 +15,6 @@ $\text{\color{#EBE1D1}{ touch discomfort }}$ $\text{\color{#CE4A44}{ + }}$ $\tex
 
 #####  💉 ㅤ[ext abt](https://bundlrs.cc/artists) ㅤ[prns cc](https://pronouns.cc/@malewife) ㅤ[rtrsprng](https://retrospring.net/@benry)ㅤ 🔪ㅤ<p/>
 
-$\text{\color{#CE4A44}{ ◟}}$ $\text{\color{#BECBE6}{always}}$ $\text{\color{#F3D196}{\ interact \ with \ caution}}$ $\text{\color{#CE4A44}{◞ }}$ 
-
 </div>
 
 <div align="center">
