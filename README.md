@@ -1,23 +1,17 @@
-
-<p align="center">
-<a href="https://spookysweaterblog.tumblr.com/post/747696500096778240/">©</a> <img src="https://i.postimg.cc/BvrXcj5Z/hjg.png"/>
-</p>
-
 <div align="center">
+  
+  $\text{\color{#5D3E3C}{ healing}}$ $\text{\color{#737580}{ is not as rewarding as ze }}$ $\text{\color{#5D3E3C}{hurting }}$
 
-$\text{\color{#CE4A44}{ ◜}}$ $\text{\color{#EBE1D1}{lovewired \ \ sys \ }}$ $\text{\color{#BECBE6}{ it he }}$ [±](https://pluralkit.xyz/f/pnysa) $\text{\color{#EBE1D1}{\ \ 6teen}}$ $\text{\color{#CE4A44}{◝ }}$
+  [![](https://64.media.tumblr.com/5f0376d038d06f9c510cd79e565e7e8d/b990265224e053f4-66/s1280x1920/3cc7f183ffcb64307157ac47abdaec48c5496f02.gifv)](https://www.tumblr.com/strawberrysnipes/742945118883020800/heavymedic-rentry-graphics?source=share)
 
-$\text{\color{#F3D196}{ scary \ trnsmasc \ omni gay \ turigirl }}$
+ $\text{\color{#A7AEB8}{ lovewired \ sys \ \ introj + frag heavy }}$
 
-$\text{\color{#BECBE6}{ touch discomfort }}$ $\text{\color{#CE4A44}{ + }}$ $\text{\color{#EBE1D1}{ afk / off tab}}$
+ $\text{\color{#A7AEB8}{ sixteen \ \ \ tmasc \ omni gay \ turigirl }}$
 
-#####  💉 ㅤ[ext abt](https://bundlrs.cc/artists) ㅤ[prns cc](https://pronouns.cc/@malewife) ㅤ[rtrsprng](https://retrospring.net/@benry)ㅤ 🔪ㅤ<p/>
+ $\text{\color{#A7AEB8}{ touch discomf \ \ often afk / off tab }}$
 
-</div>
+ $\text{\color{#A7AEB8}{ }}$
 
-<div align="center">
-
-$\text{\color{#CE4A44}{ (}}$ $\text{\color{#F3D196}{ ask to be added if we know u }}$ $\text{\color{#CE4A44}{) }}$
-
-##### [cringe sib](https://github.com/jadusableismissing)
+###### 🥩 ㅤ [`ext abt`](https://bundlrs.cc/artists) ㅤ[`prns`](https://pronouns.cc/@malewife) ㅤ[`rtrsprng`](https://retrospring.net/@benry) ㅤ 🥤
+ 
 </div>
