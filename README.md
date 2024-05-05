@@ -1,6 +1,6 @@
 <div align="center">
   
-  $\text{\color{#5D3E3C}{ healing}}$ $\text{\color{#737580}{ is not as rewarding as ze }}$ $\text{\color{#5D3E3C}{hurting }}$
+  $\text{\color{#772c32}{ healing}}$ $\text{\color{#737580}{ is not as rewarding as ze }}$ $\text{\color{#772c32}{hurting }}$
 
   [![](https://i.postimg.cc/QNkDWPMy/ezgif-6-6984f28ddc.webp)](https://www.tumblr.com/strawberrysnipes/742945118883020800/heavymedic-rentry-graphics?source=share)
 
@@ -10,6 +10,6 @@
 
  $\text{\color{#A7AEB8}{ touch discomf \ \ often afk / off tab }}$
 
-###### 🥩 ㅤ [`ext abt`](https://bundlrs.cc/artists) ㅤ[`prns`](https://pronouns.cc/@malewife) ㅤ[`rtrsprng`](https://retrospring.net/@benry) ㅤ 🥤
+ $\text{\color{#A7AEB8}{ check \ \ bndlrs \ \ for \ \ extended \ \ info  }}$
  
 </div>
