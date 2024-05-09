@@ -12,6 +12,8 @@
 
  $\text{\color{#A7AEB8}{ check \ \ bndlrs \ \ for \ \ extended \ \ info  }}$
 
+ [![HitCount](https://img.shields.io/endpoint?url=https%3A%2F%2Fhits.dwyl.com%2Flovewired%2Flovewired.json&style=flat-square&label=Views%20%3A&labelColor=%230D1117&color=%230D1117)](http://hits.dwyl.com/lovewired/lovewired)
+
  （ [`🍖`](https://bundlrs.cc/artists) ）╴ ©： [`🥩`](https://www.tumblr.com/strawberrysnipes/742945118883020800/heavymedic-rentry-graphics?source=share)
  
 </div>
