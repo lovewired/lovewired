@@ -1,6 +1,4 @@
 <div align="center">
-
- [![HitCount](https://img.shields.io/endpoint?url=https%3A%2F%2Fhits.dwyl.com%2Flovewired%2Flovewired.json&style=flat-square&label=Views%20%3A&labelColor=%230D1117&color=%230D1117)](http://hits.dwyl.com/lovewired/lovewired)
   
   $\text{\color{#935258}{ healing}}$ $\text{\color{#737580}{ is not as rewarding as ze }}$ $\text{\color{#935258}{hurting }}$
 
@@ -17,3 +15,9 @@
  （ [`🍖`](https://bundlrs.cc/artists) ）╴ ©： [`🥩`](https://www.tumblr.com/strawberrysnipes/742945118883020800/heavymedic-rentry-graphics?source=share)
  
 </div>
+
+<div align="right">
+ 
+ [![HitCount](https://img.shields.io/endpoint?url=https%3A%2F%2Fhits.dwyl.com%2Flovewired%2Flovewired.json&style=flat-square&label=Views%20%3A&labelColor=%230D1117&color=%230D1117)](http://hits.dwyl.com/lovewired/lovewired)
+ 
+ </div>
