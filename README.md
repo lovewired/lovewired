@@ -11,14 +11,14 @@
 
   ![](https://i.postimg.cc/TYP4w4ym/ezgif-1-b58fb7ead5.gif)
 
- **lovewired system**  [☎](https://pronouns.cc/@malewife)  introjct ~~&&~~ fragment heavy **16**yr
+ **lovewired system !** [🎪](https://pronouns.cc/@malewife) introjct ~~&&~~ fragment heavy **16**yr
 
- ⫕  **tmasc** boy*girl*  omni gay  embodiment of **turigirl**  ⫖
+ touch discomf ~~&&~~ crowd ~~/~~ cuddle discomf ( we're autistic )
 
- touch discomf ~~&&~~ crowd ~~/~~ cuddle discomf  ( cry abt it im autistic )
+ **usually**  off tab ~~/~~ afk not ignoring u   friends ask to c+h
 
- **usually**  off tab ~~/~~ afk not ignoring u ~~unless ur annoying~~
+ if u make fun of  **tt** / **td** / **etc**  im gonna make fun of u ! <3
 
- ⫕  crnt host [💤](https://pronouns.cc/@malewife/BENREY) ~~&&~~ co host [☣](https://pronouns.cc/@malewife/GORDON1)  ⫖
+ ———— ⫕  crnt host [💤](https://pronouns.cc/@malewife/BENREY) ~~&&~~ co host [☣](https://pronouns.cc/@malewife/GORDON1)  ⫖ ————
 
 ![](https://i.postimg.cc/m2qLbqLp/image.png)
