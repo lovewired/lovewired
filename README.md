@@ -1,7 +1,7 @@
 
 <div align="center">
  
-![](https://i.pinimg.com/originals/9e/86/1d/9e861d701ca498233c3b6082abb7aed3.gif)
+![](https://64.media.tumblr.com/48b2ca0e1d27f7a88323fc56a18b61b8/tumblr_n4lvpjfMlq1qba4ipo2_500.gifv)
 
 ★ ~~‿‿‿‿~~ [![HitCount](https://img.shields.io/endpoint?url=https%3A%2F%2Fhits.dwyl.com%2Flovewired%2Flovewired.json&style=flat-square&label=Views%20%3A&labelColor=%230D1117&color=%230D1117)](http://hits.dwyl.com/lovewired/lovewired) ~~‿‿‿‿~~ ★
 
