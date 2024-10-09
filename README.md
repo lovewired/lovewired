@@ -7,7 +7,7 @@
 
 **it** / **any** / ~~he~~ / ~~she~~ &nbsp; no they&nbsp; unless friend
 
-**seven teen** &nbsp; autidhd &nbsp; white &nbsp; nbpd &nbsp;traits
+**seventeen** &nbsp; autidhd &nbsp; white &nbsp; nbpd &nbsp;traits
 
 ###### ab[out](https://bundlrs.cc/artists) .  b[yi](https://bundlrs.cc/lesbigay) .  pr[ns.cc](https://prns.cc/bmfoz) .
 
