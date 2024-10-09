@@ -11,12 +11,9 @@
 
 ###### ab[out](https://bundlrs.cc/artists) .  b[yi](https://bundlrs.cc/lesbigay) .  pr[ns.cc](https://prns.cc/bmfoz) .
 
-![](https://64.media.tumblr.com/859e8e9182fb3df97955921895086b74/9bf1b0323feeb9d9-c8/s250x400/5d0b90314cc461b6214a5a383743b3f587b102a3.pnj)
-![](https://64.media.tumblr.com/dee38e2e27f724119d0fac75eaeab5db/e634c51f0c7130ad-c3/s100x200/37577c750e37f8f6df6fdbf62de95b9ace792c49.gifv)
-
 **sp/in** &nbsp; queer labels &nbsp; hlvrai &nbsp; sonic &nbsp; splatoon
 
-**hyperfixes** &nbsp; &nbsp; overwatch &nbsp; ao oni &nbsp; kirby &nbsp; tf2
+**hyperfixes**! &nbsp; &nbsp; overwatch &nbsp; ao oni &nbsp; kirby &nbsp; tf2
 
 &nbsp;
 
