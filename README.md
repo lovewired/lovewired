@@ -13,7 +13,7 @@
 
 ꒰ **sp / int** : &nbsp; &nbsp;queer labels / liom , &nbsp; hlvrai , &nbsp; sonic , &nbsp; splatoon ꒱
 
-![](https://i.postimg.cc/0N0jSG54/ezgif-44b111984ddcc.png)
+![](https://i.postimg.cc/5tQqM2Jg/image.png)
 
 **dni** &nbsp; / &nbsp; **i'll &nbsp;hide &nbsp;you**
 
@@ -29,4 +29,4 @@ pro cringe culture &nbsp;/&nbsp; anti weirdo . &nbsp; most hh / hb / sp fans &nb
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=la6bhsh7ybicefu719givlzt4&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=3366ff&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=la6bhsh7ybicefu719givlzt4&redirect=true)
 
-![](https://i.postimg.cc/0N0jSG54/ezgif-44b111984ddcc.png)
+![](https://i.postimg.cc/5tQqM2Jg/image.png)
