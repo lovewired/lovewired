@@ -9,7 +9,7 @@
 
 ⊱ &nbsp; &nbsp;transmasc &nbsp; gaybian &nbsp; omnigender &nbsp; &nbsp; ⏖ &nbsp; &nbsp; wishqueer[.](https://www.tumblr.com/ghosting-plural-userboxes/763994116560486400)&nbsp; &nbsp; ⊰
 
-♰  &nbsp; &nbsp;17 . &nbsp; &nbsp;autidhd &nbsp;+&nbsp; suspct. &nbsp;bpd & npd . &nbsp; &nbsp; bodily &nbsp;white&nbsp; &nbsp;  ♰
+♰&nbsp; &nbsp;17 . &nbsp; &nbsp;autidhd &nbsp;+&nbsp; suspct. &nbsp;bpd & npd . &nbsp; &nbsp; bodily &nbsp;white&nbsp; &nbsp;♰
 
 ꒰ **sp / int** : &nbsp; &nbsp;queer labels / liom , &nbsp; hlvrai , &nbsp; sonic , &nbsp; splatoon ꒱
 
