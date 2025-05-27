@@ -1,7 +1,8 @@
 
 <div align="center">
 
-![](https://64.media.tumblr.com/9054ab402d1ab5a3510101ddbe7cff11/5c946af0eadf9488-7a/s2048x3072/f4dece85fefb233bc732056cfa7eb405e3eda634.pnj)
+![](https://64.media.tumblr.com/8c58d53a265c159cde10fe03a280b73a/23681ec8e8b5b5ba-7d/s1280x1920/4549453f5f8f241cbe44ed989a330b55420f8012.pnj)
+![](https://64.media.tumblr.com/345e5ed0ac0363e696bb93b85133b7eb/23681ec8e8b5b5ba-95/s1280x1920/5539a8311a4eed69107d1df7451f93c1ac8d98e1.pnj)
 
 hi this is if youre too lazy to read our bundlrs
 
@@ -13,7 +14,8 @@ if you think we're cool and wanna be our friend [follow us on tumblr](https://ww
 
 thanks tell me how cool i am on neospring
 
-![](https://64.media.tumblr.com/e036e16b7246aa9c06712484de96761a/5c946af0eadf9488-bb/s2048x3072/0cdcc9dbea4f283ee89303fa865557db593ef82f.pnj)
+![](https://64.media.tumblr.com/345e5ed0ac0363e696bb93b85133b7eb/23681ec8e8b5b5ba-95/s1280x1920/5539a8311a4eed69107d1df7451f93c1ac8d98e1.pnj)
+![](https://64.media.tumblr.com/8c58d53a265c159cde10fe03a280b73a/23681ec8e8b5b5ba-7d/s1280x1920/4549453f5f8f241cbe44ed989a330b55420f8012.pnj)
 
 </div>
 
