@@ -1,5 +1,7 @@
 
 <div align="center">
+  
+![](https://komarev.com/ghpvc/?username=lovewired&color=700F1A&abbreviated=true&style=plastic&label=Bystanders)
 
 ![](https://64.media.tumblr.com/8c58d53a265c159cde10fe03a280b73a/23681ec8e8b5b5ba-7d/s1280x1920/4549453f5f8f241cbe44ed989a330b55420f8012.pnj)
 ![](https://64.media.tumblr.com/345e5ed0ac0363e696bb93b85133b7eb/23681ec8e8b5b5ba-95/s1280x1920/5539a8311a4eed69107d1df7451f93c1ac8d98e1.pnj)
