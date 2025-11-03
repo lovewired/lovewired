@@ -15,9 +15,9 @@ $\color{lightgrey}{\textsf{ eighteen }}$ $\{\textsf{ transmascfem }}$ $\color{li
 
 $\{\textsf{ borderline }}$ $\color{lightgrey}{\textsf{ narcissist }}$ $\{\textsf{ autistic }}$ $\color{lightgrey}{\textsf{ etc }}$ $\color{grey}{\textsf{ — }}$ $\{\textsf{ multigenic }}$ $\color{lightgrey}{\textsf{ plural }}$
 
-$\color{lightgrey}{\textsf{ radical anarchist }}$ $\{\textsf{ idgaf abt discourse }}$ $\color{lightgrey}{\textsf{ anti para dni }}$　
+$\color{lightgrey}{\textsf{ anarchist }}$ $\{\textsf{ anti para dni }}$ $\color{lightgrey}{\textsf{ including militant antiship }}$　
 
-$\{\textsf{ probably off tab }}$ $\color{lightgrey}{\textsf{ feel free to interact }}$ $\{\textsf{ im just awkward af }}$ 
+$\{\textsf{ probably off tab }}$ $\color{lightgrey}{\textsf{ feel free to interact }}$ $\{\textsf{ might not respond }}$ 
 
 <br>
 
